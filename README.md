@@ -17,4 +17,4 @@
 
                        he ノ 𝙖𝙣𝙮
                        
-                    𝙙𝙚𝙧𝙚𝙠 ᛝ rikyan ᛝ bambi
+                    𝙙𝙚𝙧𝙚𝙠 ᛝ rikyan ᛝ bernadette
