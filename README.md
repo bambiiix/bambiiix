@@ -1,20 +1,22 @@
-           〃 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙢𝙮 𝙖𝙗𝙤𝙙𝙚 , 𝙢𝙮 𝙡𝙞𝙩𝙩𝙡𝙚 𝙗𝙖𝙢𝙗𝙤𝙤 𝙜𝙧𝙤𝙫𝙚 . . 〃
+           〃 𝙎𝙢𝙞𝙡𝙚 𝙥𝙖𝙧𝙧𝙤𝙩⠀⠀⠀⠀ , 𝙮𝙤𝙪'𝙧𝙚 𝙨𝙖𝙛𝙚 . . 〃
 
-                ౨꧖  ~   bamboo blade 𝙮𝙪𝙢𝙚 🎍
+disclaimer , none of the art seen here is owned by me and belong to their rightful creators.
 
-                ౨꧖  ~   d3rlord3.derek 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣 🗡️
+              ౨꧖  ~   Wifies 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣 🧪
+
+              ౨꧖  ~   d3rlord3.derek 𝙛𝙞𝙘𝙩𝙞𝙤𝙣𝙠𝙞𝙣 🗡️
 
                              𝙙𝙤𝙪𝙗𝙡𝙚𝙨 𝙨𝙖𝙛𝙚 𝙩𝙤 𝙞𝙣𝙩
 
                             
-            ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+          ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 
-            ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+          ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
-   ![i hate this](https://i.pinimg.com/736x/9b/79/bd/9b79bd3c23720a5ceb91d87febdf780f.jpg)
+ ![i hate this](https://i.pinimg.com/736x/1c/e3/f6/1ce3f6c9b51b4507ebe02f23fed311e2.jpg)
 
-                     ︶⊹︶︶୨୧︶︶⊹︶
+                  ︶⊹︶︶୨୧︶︶⊹︶
 
-                       he ノ 𝙖𝙣𝙮
+                    he ノ 𝙖𝙣𝙮
                        
-                    𝙙𝙚𝙧𝙚𝙠 ᛝ rikyan ᛝ bernadette
+                wifies ᛝ derek ᛝ bernadette
